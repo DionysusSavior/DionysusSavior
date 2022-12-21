@@ -1,4 +1,5 @@
 Create and live your truth: Truth is in our collective imagination. The world has secrets left to find. You will find yours. 
+
 Bad times are inevitable, worrying is a waste of energy. Always be preparing. 
 A lifestlye is a culmination of daily habits. Win the day. 
 More money is not always more. Focus on marginal returns of time.
